@@ -1,4 +1,4 @@
-## Hi there 👋
+## Computer Engineering| Technical Support | Aspiring Network Engineer | IT System Support 👋
 
 <!--
 **johnlloyd4f/johnlloyd4f** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
